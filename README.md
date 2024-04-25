@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @eoint1
+- 👀 I’m interested in fpga
+- 🌱 I’m currently learning web3 and blockchain
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me gmail and discord: eointoma@gmail.com ; methreexhcz
